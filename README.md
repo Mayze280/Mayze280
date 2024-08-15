@@ -13,4 +13,4 @@ meu nome é mayze thaynara
 
   @mayzeee_thaynara
 
-  ![_](https://tenor.com/pt-BR/view/cat-rave-dance-music-party-gif-4774393132159621637)
+  ![_](https://media1.tenor.com/m/_t0sHU9OPmsAAAAC/-.gif)
